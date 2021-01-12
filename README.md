@@ -25,6 +25,10 @@ TV 31话有一段加菲猫和486的谚语大PK，此段加菲猫所说的所有�
 
 （原句 **『アズラ鳥の鳴き声は鍋で煮える』** ，出自[16卷第三章第2节](#81文限16-三-2文4847TV31预告1)）
 
+486：
+
+![](https://github.com/CanopusEtaCarinae/garf_saying/blob/master/tv31pre/tv6_2-4.png)
+
 </details>
 
 ### 目录-1
