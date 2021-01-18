@@ -67,7 +67,7 @@ TV 31话有一段加菲猫和486的谚语大PK，此段加菲猫所说的所有�
 
 486：
 
-![](https://github.com/CanopusEtaCarinae/garf_saying/blob/master/tv31pre/tv6_8-4.png)
+![](https://github.com/CanopusEtaCarinae/garf_saying/blob/master/tv31pre/tv6_10-4.png)
 
 486的原世界谚语就不作进一步整理了。加菲猫的我在正文会再具体写，这里只是个开胃菜了
 
