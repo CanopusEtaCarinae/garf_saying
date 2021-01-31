@@ -170,7 +170,8 @@ TV 31话有一段加菲猫和486的谚语大PK，此段加菲猫所说的所有�
 <details>
 <summary>【Hoshin相关】</summary>
 
-由于Hoshin相关的语录有点多，因此单开一栏<br/>
+(由于Hoshin相关的语录有点多，因此单开一栏）<br/>
+
 [『時間とお金は等価値』/『時間は金銭に等しい』/『時間とお金は価値は一緒』](#短篇奥托行商录1节Kararagi-Girl-Meets-Cats-2节WEB三-14文4-三-6)（Hoshin语录）<br/>
 <br/>
 
