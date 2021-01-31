@@ -156,8 +156,6 @@ TV 31话有一段加菲猫和486的谚语大PK，此段加菲猫所说的所有�
 
 </details>
 <details>
-<summary>【已知角色相关】</summary>
-<details>
 <summary>【已知地名相关】</summary>
 
 [『ホーシンのバナン落陽』](#42文限11-四-4文19动8)（Kararagi第二大都市）<br/>
