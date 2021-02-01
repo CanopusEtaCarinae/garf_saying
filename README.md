@@ -180,7 +180,7 @@ TV 31话有一段加菲猫和486的谚语大PK，此段加菲猫所说的所有�
 (Hoshin相关的语录比其他角色多不少，因此单开一栏）<br/>
 
 [『時間とお金は等価値』/『時間は金銭に等しい』/『時間とお金は価値は一緒』](#短篇奥托行商录1节Kararagi-Girl-Meets-Cats-2节WEB三-14文4-三-6)（Hoshin语录）<br/>
-[『はした金目当てが破滅する』(文20)](#43文限11-四-4文20)（Hoshin语录）<br/>
+[『はした金目当てが破滅する』](#43文限11-四-4文20)（Hoshin语录）<br/>
 [『最後に帳簿の帳尻合えば』](#100WEB五-81web-57)（Hoshin语录）<br/>
 [『決断力は最強の剣』](#116Girl-Meets-Cats-6节文77/72)（Hoshin语录）<br/>
 [『安い手段は命も安くする』](#短篇集-5Kararagi-Girl--Cats-Eye)（Hoshin语录）<br/>
@@ -1708,16 +1708,15 @@ WEB 486在第二试炼之前和加菲猫有对话，文库没有这段。意思�
 
 
 
-顺便这段其实在WEB里也有对应，只不过WEB并没有谚语，谚语是文库新加的。我把WEB对应原文粘在下面供参考：
 <details>
 <summary>冰结BD册子中的谚语【点击展开】：</summary>
 
-![](http://tiebapic.baidu.com/forum/pic/item/e01cdeed2e738bd46f80d66cb68b87d6267ff977.jpg)
+![](https://github.com/CanopusEtaCarinae/garf_saying/blob/master/tv31pre/guiltyleweice.jpg)
 </details>
 
 &nbsp;
 
-此外这段情节其实在WEB里也有对应，只不过WEB并没有谚语，谚语是文库新加的。我把WEB对应原文粘在下面供参考：
+顺便这段情节其实在WEB里也有对应，只不过WEB并没有谚语，谚语是文库新加的。我把WEB对应原文粘在下面供参考：
 
 **WEB四-117**
 <details>
