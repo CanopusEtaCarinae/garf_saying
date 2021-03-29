@@ -12,7 +12,8 @@ Re0中的谚语集合，其实标题也有点不恰当，但谚语绝大部分�
 
 WEB的译文全部采用贴吧版，文库则在下文中具体标注
 
-〔鸣谢：[@devil](https://tieba.baidu.com/home/main?un=ffhbcfh&ie=utf-8&id=tb.1.534d3b20.qWY05TFxuO3MZ1QKwdkDvA?t=1602434703&fr=pb)（生肉资源）、[@睡醒140](https://tieba.baidu.com/home/main?un=%E7%9D%A1%E9%86%92140&ie=utf-8&id=tb.1.4573825a.G35oHqywrZU8-mZuoW2CtQ?t=1496059407&fr=pb)（索引及部分理解思路借鉴）、[@菲泡露（伞菌君/kasakun ）](https://tieba.baidu.com/home/main?un=%E8%8F%B2%E6%B3%A1%E9%9C%B2&ie=utf-8&id=tb.1.b3d5d10b.QGvdDl90mhStK-8zEaXW9g?t=1603640692&fr=pb)（多条校对及翻译），及正文中有提及的所有大佬和无数不胜枚举的勤勉翻译君们〕
+〔鸣谢：[@devil](https://tieba.baidu.com/home/main?un=ffhbcfh&ie=utf-8&id=tb.1.534d3b20.qWY05TFxuO3MZ1QKwdkDvA?t=1602434703&fr=pb)（生肉资源）、[@睡醒140](https://tieba.baidu.com/home/main?un=%E7%9D%A1%E9%86%92140&ie=utf-8&id=tb.1.4573825a.G35oHqywrZU8-mZuoW2CtQ?t=1496059407&fr=pb)（索引及部分理解思路借鉴）、[@菲泡露（伞菌君/kasakun ）](https://tieba.baidu.com/home/main?un=%E8%8F%B2%E6%B3%A1%E9%9C%B2&ie=utf-8&id=tb.1.b3d5d10b.QGvdDl90mhStK-8zEaXW9g?t=1603640692&fr=pb)（多条校对及翻译），及正文中有提及的所有大佬和无数不胜枚举的勤勉翻译君们〕<br/>
+<br/>
 
 <!--无视、：；()『』/,.【】「」，。& '-->
 <!--不要（）〔〕—— 空格・·-->
