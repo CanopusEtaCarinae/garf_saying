@@ -3324,7 +3324,7 @@ Mimi和Hetaro发现安娜被囚让安娜随他们走时安娜做决定说的话�
 
 &nbsp;
 
-此处为三章拉姆带阿拉姆村的圣域避难组到圣域见加菲猫的情景。谚语中的“空签”根据[@菲泡露](https://tieba.baidu.com/home/main?un=%E8%8F%B2%E6%B3%A1%E9%9C%B2&ie=utf-8&id=tb.1.b3d5d10b.QGvdDl90mhStK-8zEaXW9g?t=1603640692&fr=pb)大佬的指点大概指抽奖的情况比较多，引申义到谚语里大概是有没漏洞可钻，于是加菲猫用这个谚语警示村民别耍心眼老实一点的意思？目前也就是这样的理解方式了……有机会回头也可以直接找翻译君[木之夏のPlus](https://www.bilibili.com/read/cv9152773)([acahjh](https://tieba.baidu.com/home/main?un=%E5%8A%A8%E6%BC%AB%E5%B0%8F%E8%AF%B4%E4%B8%93%E5%B1%9E&id=tb.1.ce810b.T5mN3clKNKK5oSkVKH78DQ&ie=utf-8&fr=pb))巨佬来讲讲😵
+此处为三章拉姆带阿拉姆村的圣域避难组到圣域见加菲猫的情景。谚语中的“空签”根据[@菲泡露](https://tieba.baidu.com/home/main?un=%E8%8F%B2%E6%B3%A1%E9%9C%B2&ie=utf-8&id=tb.1.b3d5d10b.QGvdDl90mhStK-8zEaXW9g?t=1603640692&fr=pb)大佬的指点大概指抽奖的情况比较多，引申义谚语里大概是有没漏洞可钻，于是加菲猫用这个谚语警示村民别耍心眼老实一点的意思？目前也就是这样的理解方式了……有机会回头也可以直接找翻译君[木之夏のPlus](https://www.bilibili.com/read/cv9152773)([acahjh](https://tieba.baidu.com/home/main?un=%E5%8A%A8%E6%BC%AB%E5%B0%8F%E8%AF%B4%E4%B8%93%E5%B1%9E&id=tb.1.ce810b.T5mN3clKNKK5oSkVKH78DQ&ie=utf-8&fr=pb))巨佬来讲讲😵
 
 [返回索引/目录](#索引)
 [返回目录对应处](#123ケゲライネに外れ籤なし文8478-12卷虎之穴)
