@@ -1294,7 +1294,7 @@ WEB版这句有点差别的谚语虽说也列到这但估计还是以文库为�
 
 &nbsp;
 
-这句话的语境应该不用多说了。不过看过一些短篇及IF的应该听说过Banan即如今的Kararagi第二大都市，安娜的起家之地和蕾姆IF常住地。[睡醒大佬总结贴3楼](https://tieba.baidu.com/p/6995455333?pn=1)即有注解，具体的还可参考[此贴9楼](https://tieba.baidu.com/p/6614464253)。大概Hoshin当年统一西方前Banan也是个独立邦国的样子。二期第8集放送时[老贼也有在推上](https://twitter.com/nezumiironyanko/status/1298631652088791042)稍科普了一下
+这句话的语境应该不用多说了。不过看过一些短篇及IF的应该听说过Banan即如今的Kararagi第二大都市，安娜的起家之地和蕾姆IF常住地。[睡醒大佬总结贴3楼](https://tieba.baidu.com/p/6995455333?pn=1)即有注解，具体的还可参考[这里](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/mapnote#kararagi%E4%B8%AD%E9%83%A8)。大概Hoshin当年统一西方前Banan也是个独立邦国的样子。二期第8集放送时[老贼也有在推上](https://twitter.com/nezumiironyanko/status/1298631652088791042)稍科普了一下
 
 动画该句位置内容完整保留（ **二期第8集** ）
 
