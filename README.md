@@ -3267,7 +3267,7 @@ Mimi和Hetaro发现安娜被囚让安娜随他们走时安娜做决定说的话�
 
 &nbsp;
 
-又是在[@睡醒140](https://tieba.baidu.com/home/main?un=%E7%9D%A1%E9%86%92140&ie=utf-8&id=tb.1.4573825a.G35oHqywrZU8-mZuoW2CtQ?t=1496059407&fr=pb)大佬的总结贴提到之后我才发现原来掌篇集也藏了一句和[**15卷**](#74WEB四-129web-45)重复的……意思同样不用多说
+又是在[@睡醒140](https://tieba.baidu.com/home/main?un=%E7%9D%A1%E9%86%92140&ie=utf-8&id=tb.1.4573825a.G35oHqywrZU8-mZuoW2CtQ?t=1496059407&fr=pb)大佬的总结贴提到之后我才发现原来掌篇集也藏了一句和[**15卷**](#74WEB四-129web-45)重复的……意思同样不用多说。同时在上面我也提到了此句为安娜座右铭，在这篇特典里也是写明了
 
 &nbsp;
 
