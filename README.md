@@ -2074,6 +2074,8 @@ WEB这段剧情对话内容不同，无谚语。这句莱傲天活着都成了�
 
 此外也是靠了[@睡醒140](https://tieba.baidu.com/home/main?un=%E7%9D%A1%E9%86%92140&ie=utf-8&id=tb.1.4573825a.G35oHqywrZU8-mZuoW2CtQ?t=1496059407&fr=pb)大佬的[整理贴（7楼）](https://tieba.baidu.com/p/6995455333?pn=1)才意识到原来[**掌篇集**](#1195卷蜜瓜掌篇集2文8074)也有出现这句……具体的就后面整理了
 
+顺便[18年安娜生日问答](https://twitter.com/nezumiironyanko/status/972454711193292801)有说此句为安娜座右铭（提问原推不可见，[英译倒是能看到](https://www.reddit.com/r/Re_Zero/comments/83kimh/translation_anastasias_birthday_2018_qa_tweets/)）
+
 [返回索引/目录](#索引)
 [返回目录-2对应处](#74ホーシンは口約束を死んでも守ったweb-45文43)
 
@@ -3181,6 +3183,8 @@ Hoshin语录确实是好懂应该不用解释了……第一段是行商录中�
 有意思的是那个伪王选候补的游戏里貌似是文库短篇和正篇四卷用过的两个版本都出现了，所以其实把这个算作为一个谚语其实我也不是很拿得准……😷
 
 另外动画一期这句也是有的不过出现太早所以这里就当成第0个动画出现的谚语了😵
+
+顺便[18年安娜生日问答](https://twitter.com/nezumiironyanko/status/972455976623161345)里有说这条是安娜最喜欢的Hoshin语录（提问者原推不可见，不过和安娜座右铭那条一样[英译能看到](https://www.reddit.com/r/Re_Zero/comments/83kimh/translation_anastasias_birthday_2018_qa_tweets/)）
 
 [返回索引/目录](#索引)
 [返回目录-2对应处](#113114時間とお金は等価値文74717571115時間は金銭に等しいweb-59時間とお金は価値は一緒文7671动0-短篇正篇三章)
