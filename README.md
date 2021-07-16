@@ -3758,7 +3758,7 @@ SP里也不放过编谚语的机会，简直……
 
 **『ボルカニカとの押し問答』**
 
-「没错，也就是所谓 **『和波尔卡尼卡争论不休』** 。」（谚语翻译来自[@菲泡露](https://tieba.baidu.com/home/main?un=%E8%8F%B2%E6%B3%A1%E9%9C%B2&ie=utf-8&id=tb.1.b3d5d10b.QGvdDl90mhStK-8zEaXW9g?t=1603640692&fr=pb)大佬）
+「没错，也就是所谓 **『和波尔卡尼卡争论不休』** 」（谚语翻译来自[@菲泡露](https://tieba.baidu.com/home/main?un=%E8%8F%B2%E6%B3%A1%E9%9C%B2&ie=utf-8&id=tb.1.b3d5d10b.QGvdDl90mhStK-8zEaXW9g?t=1603640692&fr=pb)大佬）
 
 &nbsp;
 
