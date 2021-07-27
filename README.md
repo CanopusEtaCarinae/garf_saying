@@ -39,6 +39,8 @@ WEB的译文全部采用贴吧版，文库则在下文中具体标注
 
 5节-『カラカリ峠の秘宝』
 
+短篇 Lugunican Papers 后篇（目前仅有[推上的剧透资料](https://twitter.com/back_to_death_/status/1419873933365452801)，待拿到扫图资源后会更新节数）-『練りすぎたガッツォルネ』
+
 </details>
 <br/>
 
