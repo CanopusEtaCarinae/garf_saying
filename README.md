@@ -54,6 +54,8 @@ WEB的译文全部采用贴吧版，文库则在下文中具体标注
 短篇 Lugunican Papers 后篇2节-『練りすぎたガッツォルネ』
 <!--（[推上的剧透资料](https://twitter.com/back_to_death_/status/1419873933365452801)-->
 
+28卷虎之穴『じり貧のアグリゼリ』
+
 </details>
 <br/>
 
