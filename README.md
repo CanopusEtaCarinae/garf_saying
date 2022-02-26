@@ -2601,7 +2601,7 @@ WEB此处（五章31节）无谚语，谚语为文库新加
 
 同上分配制御塔攻略任务。这个谚语单看加菲猫决心的下文似乎就是指胜利凯旋之类的意思？
 
-而这个メゾレイア竟然在页游[禁书与谜之精灵](https://rezero.fandom.com/zh/wiki/%E6%B8%B8%E6%88%8F:%E7%A6%81%E4%B9%A6%E4%B8%8E%E8%B0%9C%E4%B9%8B%E7%B2%BE%E7%81%B5)里给出了线索（见[地图](https://witchculttranslation.com/re-zero-world-map)和WCT大佬们整理的[地名](https://docs.google.com/document/d/1eEenoDyrDL5I6dUYwduoflNHPx03RgfF_DMlZce0VzA/edit)），是位于帝国某高地上的云海都市。从云海都市这称号看大概“绝景”在字面意义上确有形容都市美景的含义，至于谚语本身具体的典故，为何可以在战前形容胜利大概就得看老贼写不写相关故事了（帝国篇和页游倒都有可能，目前只能等了）
+而这个メゾレイア竟然在页游[禁书与谜之精灵](https://rezero.fandom.com/zh/wiki/%E6%B8%B8%E6%88%8F:%E7%A6%81%E4%B9%A6%E4%B8%8E%E8%B0%9C%E4%B9%8B%E7%B2%BE%E7%81%B5)里给出了线索（见[地图](https://witchculttranslation.com/re-zero-world-map)和WCT大佬们整理的[地名](https://docs.google.com/document/d/1eEenoDyrDL5I6dUYwduoflNHPx03RgfF_DMlZce0VzA/edit)），是位于帝国某高地上的云海都市。从云海都市这称号看大概“绝景”在字面意义上确有形容都市美景的含义，至于谚语本身具体的典故，为何可以在战前形容胜利大概就得看老贼写不写相关故事了。目前メゾレイア已在短篇《Sword Identity》有提及到，不过此篇暂无翻译，日语盲也不确定有涉及多少都市相关的事😷
 
 WEB同情节在 **五章47节** ，不过表决心的话和文库不太一样，谚语也是文库另加：
 <details>
