@@ -51,9 +51,11 @@ WEB的译文全部采用贴吧版，文库则在下文中具体标注
 5节-『カラカリ峠の秘宝』<br/>
 <br/>
 
-短篇 Lugunican Papers 后篇2节-『練りすぎたガッツォルネ』
+短篇 Lugunican Papers （短篇集7）后篇2节/17节-『練りすぎたガッツォルネ』
 <!--（[推上的剧透资料](https://twitter.com/back_to_death_/status/1419873933365452801)--><br/>
 <br/>
+
+30卷虎之穴『ギユグリの皿回し』
 
 </details>
 <br/>
