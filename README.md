@@ -372,7 +372,7 @@ TV 31话有一段加菲猫和486的谚语大PK，此段加菲猫所说的所有�
 
 [短篇集6（女神像+卷尾预告）](#134コドロがオオドロと早合点文9588-短篇女神像) &ensp; [Zeropedia](#137バリンクロンの絆は歯が見える笑いの中文9891-Zeropedia) &ensp; [短篇：Orcos领的赤雪](#140中途の勝利は敵前で飲む美酒と同じ文9992-短篇赤雪) &ensp; [短篇：Lugunican Papers（短篇集7）](#152練りすぎたガッツォルネ文10699-短篇集7lugunican-papers)
 
-[短篇：Stand by me Pleiades（短篇集8）](#153父王の試練マグリッツァにことごとく文107100-短篇集8stand-by-me-pleiades) &ensp; [短篇：Very Very Rough Justice](#156ブラハバクの追いかけっこ文110103-短篇集8very-very-rough-justice) &ensp; [短篇：Golden Siblings（短篇集9+杂志版）](#162ホオズロはまだ青い文116109-短篇golden-siblings-短篇集9版)
+[短篇：Stand by me Pleiades（短篇集8）](#153父王の試練マグリッツァにことごとく文107100-短篇集8stand-by-me-pleiades) &ensp; [短篇：Very Very Rough Justice](#157ブラハバクの追いかけっこ文111104-短篇集8very-very-rough-justice) &ensp; [短篇：Golden Siblings（短篇集9+杂志版）](#162ホオズロはまだ青い文116109-短篇golden-siblings-短篇集9版)
 
 ### 目录-2
 
@@ -534,7 +534,7 @@ TV 31话有一段加菲猫和486的谚语大PK，此段加菲猫所说的所有�
 #### [155、『クエのリンガは甘そうで酸っぱい』(文109/102)](#155stand-by-me-pleiades-3话3节短篇集8-三章3节文109102)
 #### [156、『ハンファンの求愛は誰よりも高く』(文110/103)](#156stand-by-me-pleiades-5话2节短篇集8-四章2节文110103)
 #### [156.5、『ガーフィール・ティンゼル、かく語りき』(文110.5/103.5)](#1565stand-by-me-pleiades-6话5节短篇集8-四章10节文11051035)
-#### [156、『ブラハバクの追いかけっこ』(文110/103)-【短篇集8：Very Very Rough Justice】](#短篇集-8very-very-rough-justice)
+#### [157、『ブラハバクの追いかけっこ』(文111/104)-【短篇集8：Very Very Rough Justice】](#短篇集-8very-very-rough-justice)
 #### [157、『モッカルカの翼は風を越える』(文111/104)](#157very-very-rough-justice-2节2文111104)
 #### [158、『ジョーテンどゲテンの合わせ相撲』(文112/105)](#158very-very-rough-justice-3节文112105)
 #### [159、『皿と水とゲジゲライ』(文113/106)](#159very-very-rough-justice-4节文113106)
@@ -4433,7 +4433,7 @@ https://tieba.baidu.com/p/8337935935 30楼
 
 #### 短篇集-8：Very Very Rough Justice
 
-**156、Very Very Rough Justice 2节；(文110/103)**
+**157、Very Very Rough Justice 2节；(文111/104)**
 
 **『ブラハバクの追いかけっこ』**
 
@@ -4444,7 +4444,7 @@ https://tieba.baidu.com/p/8337935935 30楼
 语境是加菲猫是觉得工业都市重建应该时间充裕不应该花太久。往谚语里套的话大概是说这个“鬼抓人”应该是个很小菜一碟能很快搞定的事……？也不知这个ブラハバク是个地名还是个事件背景之类的，目前我也就按上下文猜成这样看看有没有大佬有更好意见了😷
 
 [返回索引/目录](#索引)
-[返回目录-2对应处](#156ブラハバクの追いかけっこ文110103-短篇集8very-very-rough-justice)
+[返回目录-2对应处](#157ブラハバクの追いかけっこ文111104-短篇集8very-very-rough-justice)
 
 ----
 
