@@ -2787,7 +2787,7 @@ WEB此处（五章31节）无谚语，谚语为文库新加
 
 而这个メゾレイア最早竟然在页游[禁书与谜之精灵](https://rezero.fandom.com/zh/wiki/%E6%B8%B8%E6%88%8F:%E7%A6%81%E4%B9%A6%E4%B8%8E%E8%B0%9C%E4%B9%8B%E7%B2%BE%E7%81%B5)里给出了线索（见[地图](https://witchculttranslation.com/re-zero-world-map)和WCT大佬们整理的[地名](https://docs.google.com/document/d/1eEenoDyrDL5I6dUYwduoflNHPx03RgfF_DMlZce0VzA/edit)），是位于帝国的云海都市。七八章也多次写到メゾレイア亦是云龍的名字。到八章55节飞龙将名前回则透露メゾレイア为以云龍命名，有野生飞龙栖息，为于云团缠绕的山顶的都市。看这段情节所讲接下来要攻略的色欲会变龙，不知道加菲猫引用飞龙栖息的云海都市是不是有与之相关的联想了（
 
-顺便短篇Sword Identity表光在魔都看到龙群也感叹了一句「哇～满是杀气。这么多的飞龙，就算是梅佐雷亚也不常见吧。」
+顺便短篇Sword Identity青光在魔都看到龙群也感叹了一句「哇～满是杀气。这么多的飞龙，就算是梅佐雷亚也不常见吧。」
 
 WEB同情节在 **五章47节** ，不过表决心的话和文库不太一样，谚语也是文库另加：
 <details>
